@@ -1,3 +1,3 @@
 # ahtilal
 
-https://upadrastaharshavardhan.github.io/ahtilal/
+https://upadrastaharshavardhan.github.io/hash555/
